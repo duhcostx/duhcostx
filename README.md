@@ -1,7 +1,7 @@
 ## oiiii! tudo bem. 👋
 
 *Eu me chamo Eduarda**
- ## Serva de Deus#
+ ## Serva de Deus.
 
 Estou na 1 série do ensino médio.
 
